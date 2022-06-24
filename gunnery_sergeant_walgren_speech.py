@@ -45,7 +45,7 @@ John Glenn, 1974, ran for senate.\n\
 Against a politician named Howard Metzenbaum.\n\
 Howard Metzenbaum, was a sorry mother-@!*@er.\n\
 John Glenn at this point, was a Marine. First American to orbit the Earth in space.\n\
-Howard Metzenbaum asked him, ”How could you run for senate when you’ve never held a job.”\n\
+Howard Metzenbaum asked him, ”How could you run for senate when you’ve never held a job?”\n\
 What the @!*@ would you do if someone said that @!*@ to you?\n\
 Now I’m going to change a little bit of this, I can, it’s my world.\n\n\
 John Glenn said, ”Is that right?"\n\
